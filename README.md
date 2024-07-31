@@ -1,4 +1,3 @@
 OI, MEU NOME É GABRIEL 
 💩
-![](
-https://giphy.com/gifs/justin-reminiscing-smoking-duck-i-might-switch-S1SnLg08CxnUGqyqha
+![](https://mir-s3-cdn-cf.behance.net/project_modules/hd/5eeea355389655.59822ff824b72.gif)
